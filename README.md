@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently following **Higher Diploma in Computing and Software Engineering - Cardiff Metropolitan University**
 
-- 📫 How to reach me **shehanranaw@gmail.com**
+- 📫 How to reach me **shehanranaw757@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
